@@ -1,2 +1,2 @@
 # **Leep-Talent**
-:joy:
+🌇:
